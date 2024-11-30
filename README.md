@@ -6,4 +6,4 @@ Adnan G Sesay 8904
 Moses b Koroma 
 Leema Kamara
 Idrissa Marcuar Fofanah
-NEneh Hawa Bangura
+Neneh Hawa Bangura
